@@ -1,1 +1,1 @@
-# [Khalid]'s Notes
+# Khalid's Notes
